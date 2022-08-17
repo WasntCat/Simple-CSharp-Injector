@@ -1,2 +1,8 @@
 # Simple-CSharp-Injector
-Just a very and i mean very simple c# injecter
+
+<-------------------------->
+
+Inject inject mhmm yesss inject those
+yummy c# dlls ahhhhh yeaaaaa
+
+<-------------------------->
